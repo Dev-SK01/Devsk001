@@ -13,7 +13,7 @@
 💯 Learning STOCK MARKET 
 ☢ Learning ETHICAL HACKING.. 
 ☢ I Want To Become A ENTREPRENEUR.
-☢ I WANT TO CREAT NEW IN MY PASSION AND DEVELOPE OUR COUNTRY. 
+☢ I WANT TO CREATE NEW IN MY PASSION AND DEVELOPE OUR COUNTRY. 
 ☢Love The Universe
 🎶 Music Lover. 
 💪 I compete With Top Most Tech Company. 
