@@ -1,10 +1,10 @@
 - 👋 Hi, I’m SRIKANTH
 - 👀 I’m interested in LEARN AND MAKE NEW TECHNOLOGY COMPETE WITH GOOGLE
-- 🌱 I’m currently learning ... JS.JAVA ,KOTLIN,PYTHon,CPP,DART,AND OTHER
+- 🌱 I’m currently learning FullStack 🏅
 - 💞️ I’m looking to collaborate NEW DEVELOPERS
 - 📫 reach me ON SRIK3713@GMAIL.COM
--    MY AGE -17
--    I WANT BECOME A ETHICAL HACKER,INVESTER,DEVELOPER.
+- 
+-  ⛳  I WANT BECOME A ETHICAL HACKER,INVESTER,DEVELOPER.
 -
 
 †********************†
